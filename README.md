@@ -20,4 +20,14 @@
 
 <p style="text-align:center"><img alt="Colégio constrói passarela de acesso com ajuda da comunidade" src="https://media.tribunadointerior.com.br/2021/06/6b41120d-1564597870-5d41e2f8226d0-passarela-rondon-capa.jpg" /></p>
 
+<hr />
 <p style="margin-left:200px">&nbsp;</p>
+
+<p>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<strong><span style="font-size:36px">Em 2020 nosso col&eacute;gio virou C&iacute;vico Militar</span></strong></p>
+
+<p style="margin-left:200px">&nbsp;</p>
+
+<p style="margin-left:240px"><img alt="Colégio Cívico Militar Érico Veríssimo de Laranjeiras entre as melhores  instituições segundo o Ideb – Connect TV" src="https://connect.tv.br/wp-content/uploads/2022/11/cole-1.jpg" /></p>
+
+<hr />
+<p>&nbsp;</p>
